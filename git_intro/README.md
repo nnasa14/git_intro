@@ -1,1 +1,2 @@
 Natalie Nascimento
+nascimen@oregonstate.edu
